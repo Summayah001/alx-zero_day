@@ -1,1 +1,1 @@
-Starting to code today, so cool
+Great thing to note
